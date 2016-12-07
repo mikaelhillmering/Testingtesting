@@ -1,4 +1,4 @@
 # Testingtesting
-Fritt tänka
+Fritt tänkande
 
-bla bla bdfkalöskkalösköködk
+iqwjjewjewfjifwjwiejijfwe
